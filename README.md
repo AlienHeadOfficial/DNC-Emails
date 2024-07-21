@@ -1,4 +1,4 @@
-# DNC-Emailz
+# DNC-Emails
 
 https://mega.nz/file/VRIjVaJI#Jmai3h28hLMqWOGXxr-rJp2TxRK6aaYbxDWco_v_NJ4
 
